@@ -2,7 +2,6 @@
 
 ## Wiener rotes Kreuz – Wohlfühlen daheim
 
-- [Webseite](https://www.roteskreuz.at/wien/home)
 - [Übersicht](https://www.wrk-handel-gmbh.at/medizinprodukte/)
 - [Online-Shop](https://www.wrk-handel-gmbh.at/produkt-kategorie/medizinprodukte/)
 - [App Vengolino](https://www.wrk-handel-gmbh.at/vengolino/)
