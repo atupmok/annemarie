@@ -10,7 +10,7 @@ Zimmer Nr. 205
 
 Beste Besuchszeit: 13:00 – 17:00, weil da am wenigsten los ist
 
-Bei Katarina Bosnjakovic anrufen, falls der Wunsch besteht außerhalb der besten Besuchszeit zu kommen. 
+Bei Katarina Bosnjakovic anrufen, falls der Wunsch besteht, außerhalb der besten Besuchszeit zu besuchen. 
 
 # Kontakte 
 
