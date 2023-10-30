@@ -1,6 +1,6 @@
 # Kolpinghaus "Gemeinsam leben" Wien-Leopoldstadt
 
-- [private Info-Seite](kolpinghaus_gemeinsam_leben_wien_leopoldstadt.md)
+- [Private Info-Seite](kolpinghaus_gemeinsam_leben_wien_leopoldstadt.md)
 - [Website](https://www.gemeinsam-leben.at/wien-leopoldstadt)
 
 # Medizinprodukte
