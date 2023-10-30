@@ -2,7 +2,7 @@
 
 # Annemaries Zimmer
 
-2\. Stock (Aus dem Aufzug und den Gang entlang)  
+Zweiter Stock (Aus dem Aufzug und den Gang entlang)  
 Zimmer Nr. 205
 
 
